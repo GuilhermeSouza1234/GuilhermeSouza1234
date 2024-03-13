@@ -1,4 +1,4 @@
-Boas, me chamo Guilherme Souza mas podem me tratar por Zigui, Zibi, Zi, Z, I,  , Zibs, Ziguirigui, e por ai vai.
+Boas, me chamo Guilherme Souza mas podem me tratar por Zigui, Zibi, Zizi, Zi, Z, I,  , Zibs, Ziguirigui, e por ai vai.
 Atualmente procuro ganhar a vida como jogador profissional de Rainbow Six Siege e/ou Apex Legends.
 Faço streams durante a semana e também no sábado, tirando apenas domingo como uma "folga".
 Fã nº 1 de Manoel Gomes, meu maior idolo.
